@@ -9,3 +9,5 @@ Para disfrutar Brasil sin contratiempos: mantente hidratado y usa protector sola
 # Foto 
 ![Brasil](https://humanidades.com/wp-content/uploads/2017/04/brasil-1-e1566159470787.jpg)
 
+# Información
+Brasil es una vasta nación que ocupa casi la mitad de América del Sur, abarcando desde la cuenca del río Amazonas en el norte hasta las impresionantes Cataratas del Iguazú en el sur. El país es mundialmente famoso por su Carnaval, el fútbol y ritmos como la samba y el bossa nova. Río de Janeiro, con su icónica estatua del Cristo Redentor, es el epicentro turístico, mientras que Brasilia destaca por su arquitectura modernista y São Paulo como el motor económico y cultural de la región.
