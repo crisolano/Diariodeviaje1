@@ -9,3 +9,5 @@ Para explorar su historia: se recomienda visitar Praga y Bratislava para entende
 # Foto 
 ![Checoslovaquia](https://www.autopista.es/uploads/s1/96/06/32/2/imagen-de-la-capital-de-la-republica-checa.jpeg)
 
+# Información 
+Checoslovaquia fue un estado soberano en Europa Central (1918-1992) formado tras la caída del Imperio Austrohúngaro, uniendo las actuales República Checa y Eslovaquia. Tras periodos de democracia, ocupación nazi y dominio socialista, el país se disolvió pacíficamente el 1 de enero de 1993, dando paso a dos países independientes. 
