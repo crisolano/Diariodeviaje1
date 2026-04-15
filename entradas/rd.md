@@ -6,3 +6,6 @@ La República Dominicana es un paraíso tropical situado en el corazón del Cari
 ## Recomendaciones
 Para viajar por República Dominicana: la mejor forma de moverse entre ciudades es a través de los autobuses "Caribe Tours" o "Metro", que son cómodos y puntuales. En las zonas turísticas, el efectivo en pesos dominicanos es útil para propinas y compras en mercados locales, aunque el dólar y las tarjetas se aceptan ampliamente. No olvides usar protector solar biodegradable si visitas los arrecifes y, sobre todo, no dejes de probar el "morir soñando" y un buen sancocho.
 
+# Foto
+![República Dominicana](https://godominicanrepublic.com)
+
