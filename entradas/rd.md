@@ -1,4 +1,8 @@
 # República Dominicana
 
-## Descripción 
-La República Dominicana es un país caribeño situado en la isla de La Española (Antillas Mayores), compartida con Haití al oeste. Con Santo Domingo como capital, destaca por su rica historia colonial, playas turísticas de arena blanca, ritmos como el merengue y la bachata, y una población acogedora.
+## Descripción
+La República Dominicana es un paraíso tropical situado en el corazón del Caribe, ocupando la mayor parte de la isla de La Española. Es un destino donde la historia colonial se mezcla con playas de ensueño y una alegría contagiosa. Conocida por ser la cuna del merengue y la bachata, el país ofrece una diversidad geográfica única que va desde dunas de arena hasta el pico más alto de las Antillas.
+
+## Recomendaciones
+Para viajar por República Dominicana: la mejor forma de moverse entre ciudades es a través de los autobuses "Caribe Tours" o "Metro", que son cómodos y puntuales. En las zonas turísticas, el efectivo en pesos dominicanos es útil para propinas y compras en mercados locales, aunque el dólar y las tarjetas se aceptan ampliamente. No olvides usar protector solar biodegradable si visitas los arrecifes y, sobre todo, no dejes de probar el "morir soñando" y un buen sancocho.
+
