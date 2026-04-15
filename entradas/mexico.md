@@ -9,4 +9,6 @@ Para viajar por México: utiliza las líneas de autobuses de lujo para trayectos
 # Foto 
 ![México](https://cdmx.gob.mx)
 
+# Información
+México cuenta con una de las gastronomías más ricas del mundo, declarada Patrimonio de la Humanidad. Su capital, la Ciudad de México, es una de las urbes con más museos en el planeta. El país es un referente global gracias a su arte (con figuras como Frida Kahlo), su música de mariachi y la calidez de su gente. Además, alberga maravillas del mundo moderno como Chichén Itzá y una biodiversidad que lo sitúa entre los países más ricos en especies del mundo.
 
