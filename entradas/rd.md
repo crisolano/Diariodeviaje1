@@ -9,3 +9,5 @@ Para viajar por República Dominicana: la mejor forma de moverse entre ciudades 
 # Foto
 ![República Dominicana](https://godominicanrepublic.com)
 
+# Información
+Desde la Zona Colonial de Santo Domingo, declarada Patrimonio de la Humanidad, hasta las exclusivas playas de Punta Cana y la exuberante naturaleza de Samaná, el país lo tiene todo. Es el líder turístico de la región gracias a su infraestructura hotelera de primer nivel y su clima de verano eterno. Además de su belleza natural, la República Dominicana destaca por su pasión por el béisbol y su exquisito tabaco y cacao, considerados entre los mejores del mundo.
