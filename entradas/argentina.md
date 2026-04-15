@@ -5,3 +5,6 @@ Argentina es un país de contrastes asombrosos ubicado en el extremo sur de Amé
 
 ## Recomendaciones
 Para viajar por Argentina: prepárate para las grandes distancias y considera vuelos internos para ahorrar tiempo. En las ciudades, el transporte público se maneja con la tarjeta SUBE; cárgala con antelación. Es conveniente llevar algo de efectivo, ya que aunque las tarjetas se aceptan mucho, algunos comercios ofrecen descuentos por pago al contado. No te vayas sin probar un bife de chorizo y un vino malbec en una parrillada local.
+
+# Foto 
+![Argentina](https://www.elespectador.com/resizer/v2/Q5QXPJTMXBDNTHGWMI2LMMZFCA.jpg?auth=3beb5bf3bbd95ca7046d6940fd7cb1d10a3587062ba06741a7858e90a45a8f61&width=920&height=613&smart=true&quality=60)
