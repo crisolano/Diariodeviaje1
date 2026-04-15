@@ -8,3 +8,6 @@ Para viajar por Argentina: prepárate para las grandes distancias y considera vu
 
 # Foto 
 ![Argentina](https://www.elespectador.com/resizer/v2/Q5QXPJTMXBDNTHGWMI2LMMZFCA.jpg?auth=3beb5bf3bbd95ca7046d6940fd7cb1d10a3587062ba06741a7858e90a45a8f61&width=920&height=613&smart=true&quality=60)
+
+# Información
+Argentina se extiende desde el trópico hasta la Antártida, albergando maravillas naturales como las Cataratas del Iguazú y el Glaciar Perito Moreno. Buenos Aires, su capital, es conocida como la "París de Sudamérica" por su arquitectura sofisticada y su vibrante vida nocturna. El país es un referente cultural global gracias a su literatura, su cine y la pasión inigualable de su gente por el deporte y la vida social.
